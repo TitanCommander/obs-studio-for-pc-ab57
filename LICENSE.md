@@ -1,4 +1,4 @@
-# 
+# Enhance OBS Studio for PC | OBS Studio for Windows with OBS Studio for PC | OBS Studio for Windows smart Effect: chat-integration & video-encoding, the #1 effect. Includes
 
 
 
